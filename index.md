@@ -8,7 +8,7 @@
 
 *Picture:* 
 
-
+![Me](https://user-images.githubusercontent.com/66543924/84462421-02e89180-ac3d-11ea-9947-e07b0eb780df.jpg)
 
 ### Social Media:
 
