@@ -4,7 +4,7 @@
 
 *School:* East Brunswick High School
 
-*Grade:* 11
+*Grade:* 12
 
 *Picture:* 
 
